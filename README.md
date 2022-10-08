@@ -2,6 +2,6 @@
 
 <h1 align="center">Hi🙋‍♂️ Im Sohan Khan</h1>
 <h1 align="left">BDN-8DIGIT CRACKER<h1>
-Hey Guys Its Paid Tools But Now It Free To All
+Hey Guys Its Paid Tools But Now It Free For All
 So You No Need To Approv Or Permission
 <h1 align="center">So Enjoy It<h1>
